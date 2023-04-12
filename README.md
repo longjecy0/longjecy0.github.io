@@ -1,2 +1,1 @@
-# longjecy0.github.io
-xxxxxxxttyyuyiuiuuiiighghk
+Hello dear user, this is our game official website, which is currently being improved. Please be patient and wait for our updates. If you have any suggestions for our game, please contact us via ongjecy0@gmail.com Contact us and we will do our best to improve and modify it. Thank you for your support!
